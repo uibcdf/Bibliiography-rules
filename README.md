@@ -1,1 +1,1 @@
-# Bibliiography norms and rules
+# Bibliography norms and rules
